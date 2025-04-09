@@ -14,7 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-𝗜'𝗺 𝗮 𝗴𝗮𝗺𝗲 client 𝗱𝗲𝘃𝗲𝗹𝗼𝗽𝗲𝗿 𝗮𝗻𝗱 𝗶𝗻𝘁𝗲𝗿𝗲𝘀𝘁𝗲𝗱 𝗶𝗻 VR Contents develope.
+
 <br>
 
 You can check out my blog, portfolio, and other activities by clicking on the badges below!
