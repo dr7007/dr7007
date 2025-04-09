@@ -15,6 +15,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
+𝗜'𝗺 𝗮 𝗴𝗮𝗺𝗲 𝐜𝐥𝐢𝐞𝐧𝐭 𝗱𝗲𝘃𝗲𝗹𝗼𝗽𝗲𝗿 𝗮𝗻𝗱 𝗶𝗻𝘁𝗲𝗿𝗲𝘀𝘁𝗲𝗱 𝗶𝗻 𝐕𝐑 𝐜𝐨𝐧𝐭𝐞𝐧𝐭𝐬 𝐝𝐞𝐯𝐞𝐥𝐨𝐩𝐞.
 <br>
 
 You can check out my blog, portfolio, and other activities by clicking on the badges below!
