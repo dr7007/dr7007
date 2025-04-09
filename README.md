@@ -14,7 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-[<img src="https://trello.com/1/cards/67621a3fa330633266438dd1/attachments/67621a694b0acec6bfe67a78/download/%ED%83%80%EC%9D%B4%ED%8B%80_%EC%98%88%EC%8B%9C_1.jpg" alt="drawing" width="40%"/>](https://ounols.kr)<br>
 𝗜'𝗺 𝗮 𝗴𝗮𝗺𝗲 client 𝗱𝗲𝘃𝗲𝗹𝗼𝗽𝗲𝗿 𝗮𝗻𝗱 𝗶𝗻𝘁𝗲𝗿𝗲𝘀𝘁𝗲𝗱 𝗶𝗻 VR Contents develope.
 <br>
 
