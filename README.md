@@ -14,7 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-[<img src="https://github.com/user-attachments/assets/b3afa532-6b1c-4ed4-bdd4-1ce49e777311" alt="drawing" width="40%"/>]
+[<img src="https://github.com/user-attachments/assets/b3afa532-6b1c-4ed4-bdd4-1ce49e777311" alt="drawing" width="40%"/>]<br>
 𝗜'𝗺 𝗮 𝗴𝗮𝗺𝗲 𝐜𝐥𝐢𝐞𝐧𝐭 𝗱𝗲𝘃𝗲𝗹𝗼𝗽𝗲𝗿 𝗮𝗻𝗱 𝗶𝗻𝘁𝗲𝗿𝗲𝘀𝘁𝗲𝗱 𝗶𝗻 𝐕𝐑 𝐜𝐨𝐧𝐭𝐞𝐧𝐭𝐬 𝐝𝐞𝐯𝐞𝐥𝐨𝐩𝐞.
 <br>
 
